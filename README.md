@@ -1,2 +1,2 @@
 # Tecnociberneticas
-In this repository y will update most of my achievements
+In this repository i'll update most of my achievements
